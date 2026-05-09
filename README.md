@@ -1,0 +1,2 @@
+# abdulajid
+pemrogaman untuk UTS
